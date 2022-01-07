@@ -1,0 +1,1 @@
+# inada-info.indvi
